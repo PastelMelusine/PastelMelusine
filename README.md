@@ -16,8 +16,6 @@
    ⇣⇡ ﹒She / They / Doll ✩| Lyney's one and only !!  ‹𝟹  ﹕ʬ﹒∿
     <br />
     ᛝྀི⠀Please Read my 
-     <a href="https://doviclace.carrd.co/">Carrd </a>
-   Or my 
         <a href="https://rentry.co/magiciancathat">Rentry </a>
   before to int  .ᐟ⠀(🫀)⠀໒ྀི｡
   
