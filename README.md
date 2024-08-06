@@ -11,6 +11,8 @@
  <p align="center">
     𓏵 ꒰ྀི Lette ou Dollie ♡ ◞ ྀི Real
    <a href="https://genshin-impact.fandom.com/wiki/Columbina"> Columbina </a>
+   and
+      <a href="https://honkai-star-rail.fandom.com/wiki/Lingsha"> Lingsha </a>
    །♰ ྀི🪽
     <br />
    ⇣⇡ ﹒She / They / Doll ✩| Lyney's one and only !!  ‹𝟹  ﹕ʬ﹒∿
